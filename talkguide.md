@@ -332,6 +332,9 @@ Bem, tivemos tantos momentos bons e que me marcaram, mas para citar apenas algun
 120. As diversas vezes que expressou certeza sobre nós e que nunca esteve tão certa de uma relação ou sentiu algo assim por alguém
 121. Suas fotos aleatórias no banheiro do trabalho ou com minhas blusas
 122. O áudio fazendo petição para eu te deixar uma blusa minha hasuahs
+123. Como você segurava minha mãe no carro na viagem pro sitio e de volta
+124. Como você dizia coisas sussurando no carro, que me amava, se eu tava bem, se eu tava rindo por conta das músicas em espanhol
+125. Como você disse que seria minha guia no chile hehe
 
 Entre muitos outros momentos e detalhes que te fazem especial e todos momentos felizes
 
